@@ -3,4 +3,4 @@
 # motoc here
 krane ce commit ai lmaoo
 # madalin
-#denis
+#denis"krane din terminalulee" 
